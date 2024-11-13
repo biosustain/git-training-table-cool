@@ -1,2 +1,2 @@
 # About Alberte
-I am working in QMCM
+I am working in QMCM as a research assistant
